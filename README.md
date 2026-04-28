@@ -59,3 +59,20 @@ We supply high-quality raw materials for battery R&D and production:
 
 👉 **Explore full product catalog & inquiry now**:  
 https://global.kpbioie.com/
+
+## How to Order
+1. Browse the full product catalog on our official website.
+2. Send inquiry with product name, CAS number, quantity, destination, purity requirements and execution standards.
+3. Get official quotation, procurement lead time and compliance solution.
+4. Confirm order and arrange global delivery.
+
+If you cannot find target products online, please contact us for custom sourcing.
+
+## Full Product Catalog
+[View Complete Product List](./PRODUCTS.md)
+
+---
+## Contact & Inquiry
+- Official Website: https://global.kpbioie.com/
+- Contact Page: https://global.kpbioie.com/contact/
+- Business Email: info@kpbioie.cn
