@@ -1,5 +1,5 @@
 # Laboratory Reagents & Consumables | Shanghai Boombio / KPBioIE
-One-stop integrated supply of laboratory reagents and disposable lab consumables for daily experiments, analysis and testing.
+One-stop integrated supply of [laboratory reagents](https://global.kpbioie.com/product-category/laboratory-reagents/) and disposable lab consumables for daily experiments, analysis and testing.
 
 ## Main Product Range
 - General laboratory reagents
