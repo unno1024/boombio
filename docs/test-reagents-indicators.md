@@ -1,5 +1,5 @@
 # Test Reagents & Indicators | Shanghai Boombio / KPBioIE
-Professional test reagents, indicators and biochemical assay supplies for laboratory qualitative and quantitative analysis.
+Professional [test reagents, indicators and biochemical assay](https://global.kpbioie.com/product-category/standard_substance/test-reagents-indicators/) supplies for laboratory qualitative and quantitative analysis.
 
 ## Main Product Range
 - Test reagents and indicators
