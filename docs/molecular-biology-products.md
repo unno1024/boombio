@@ -1,5 +1,5 @@
 # Molecular Biology Products | Shanghai Boombio / KPBioIE
-High-quality molecular biology raw materials and culture media for gene research, protein analysis and biochemical molecular experiments.
+High-quality [molecular biology raw materials and culture media](https://global.kpbioie.com/product-category/molecular-biology-products/) for gene research, protein analysis and biochemical molecular experiments.
 
 ## Main Product Range
 - Molecular experiment culture media
