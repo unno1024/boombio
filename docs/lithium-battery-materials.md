@@ -1,5 +1,5 @@
 # Lithium Battery Materials | Shanghai Boombio / KPBioIE
-Full-series battery raw materials for lithium battery R&D, pilot testing, and industrial production.
+Full-series [battery raw materials](https://global.kpbioie.com/product-category/lithium-battery-materials/) for lithium battery R&D, pilot testing, and industrial production.
 
 ## Main Product Range
 - Cathode Materials
