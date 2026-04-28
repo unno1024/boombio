@@ -1,5 +1,5 @@
 # Microbiological Testing Products | Shanghai Boombio / KPBioIE
-Professional microbial culture media and testing supplies for food safety detection, environmental monitoring and pharmaceutical microbial limit test.
+Professional [microbial culture media and testing](https://global.kpbioie.com/product-category/microbiological-testing-products/) supplies for food safety detection, environmental monitoring and pharmaceutical microbial limit test.
 
 ## Main Product Range
 - Culture Media
