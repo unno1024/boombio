@@ -1,5 +1,5 @@
 # Standard Substance | Shanghai Boombio / KPBioIE
-Certified reference materials and standard solutions for instrument calibration, pharmaceutical testing, environmental monitoring and laboratory quality control.
+[Certified reference materials and standard solutions](https://global.kpbioie.com/product-category/standard_substance/) for instrument calibration, pharmaceutical testing, environmental monitoring and laboratory quality control.
 
 ## Main Product Range
 - Titration Solutions
