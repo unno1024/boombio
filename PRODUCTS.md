@@ -2,6 +2,30 @@
 
 One-stop cross-border supply for life science, biopharma, and lithium battery materials | Official Site: https://global.kpbioie.com/
 
+## Product Category Navigation
+- 🧪 [Biochemical Reagent](./docs/biochemical-reagent.md)
+- 🧬 [Biological Products](./docs/biological-products.md)
+- 🫧 [Cell Culture Series](./docs/cell-culture-series.md)
+- 🧫 [Laboratory Reagents & Consumables](./docs/lab-reagents-consumables.md)
+- 🦠 [Microbiological Testing Products](./docs/microbiological-testing.md)
+- 🧬 [Molecular Biology Products](./docs/molecular-biology-products.md)
+- 📊 [Standard Substance](./docs/standard-substance.md)
+- 🧪 [Test Reagents & Indicators](./docs/test-reagents-indicators.md)
+- 🔋 [Lithium Battery Materials](./docs/lithium-battery-materials.md)
+
+## Order & Inquiry Guide
+Submit detailed inquiry information to improve quotation efficiency:
+Product name, CAS number, quantity, shipping destination, purity grade and industry execution standard.
+
+We support export declaration, commodity inspection, transportation identification report and one-stop cross-border customs clearance.
+Unlisted or hard-to-find products are available via custom email inquiry.
+
+---
+## Contact & Inquiry
+- Official Website: https://global.kpbioie.com/
+- Contact Page: https://global.kpbioie.com/contact/
+- Business Email: info@kpbioie.cn
+
 ---
 
 ## 1. Life Science & Biopharma Products
