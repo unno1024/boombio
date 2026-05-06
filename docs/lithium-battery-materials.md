@@ -1,4 +1,4 @@
-# Lithium Battery Materials | Shanghai Boombio / KPBioIE
+# Lithium Battery Materials | Shanghai Kepon Biotech / KPBioIE
 Full-series [battery raw materials](https://global.kpbioie.com/product-category/lithium-battery-materials/) for lithium battery R&D, pilot testing, and industrial production.
 
 ## Main Product Range
