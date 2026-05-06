@@ -1,4 +1,4 @@
-# Cell Culture Series | Shanghai Boombio / KPBioIE
+# Cell Culture Series | Shanghai Kepon Biotech / KPBioIE
 Full-range [cell culture products](https://global.kpbioie.com/product-category/biological-products/cell-culture/) for cell biology research, biopharmaceutical production and life science laboratory use.
 
 ## Main Product Range
