@@ -1,4 +1,4 @@
-## 📦 Products | Shanghai Boombio / KPBioIE
+## 📦 Products | Shanghai Kepon Biotech / KPBioIE
 
 One-stop cross-border supply for life science, biopharma, and lithium battery materials | Official Site: https://global.kpbioie.com/
 
@@ -166,7 +166,7 @@ Focus: Life Science | Biopharma | Lithium Battery | Cross-Border Supply
 
 ## 6. Minimal Version
 
-## Shanghai Boombio / KPBioIE
+## Shanghai Kepon Biotech / KPBioIE
 
 One-stop cross-border supplier for life sciences, biopharma, and lithium battery materials. Official Site: https://global.kpbioie.com/
 
