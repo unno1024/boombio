@@ -1,5 +1,5 @@
 # Biochemical Reagent
-Shanghai Boombio (KPBioIE) supplies high-purity [biochemical reagents](https://global.kpbioie.com/product-category/biochemical_reagent/) for life science research, pharmaceutical analysis, biochemical testing and industrial laboratory applications.
+Shanghai Kepon Biotech (KPBioIE) supplies high-purity [biochemical reagents](https://global.kpbioie.com/product-category/biochemical_reagent/) for life science research, pharmaceutical analysis, biochemical testing and industrial laboratory applications.
 
 ## Main Product Range
 - Biochemical raw materials
