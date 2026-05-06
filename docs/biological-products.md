@@ -1,4 +1,4 @@
-# Biological Products | Shanghai Boombio / KPBioIE
+# Biological Products | Shanghai Kepon Biotech / KPBioIE
 Professional [biological products](https://global.kpbioie.com/product-category/biological-products/) and supporting raw materials for scientific research, microbial experiments and biopharmaceutical production.
 
 ## Main Product Range
