@@ -1,4 +1,4 @@
-# Laboratory Reagents & Consumables | Shanghai Boombio / KPBioIE
+# Laboratory Reagents & Consumables | Shanghai Kepon Biotech / KPBioIE
 One-stop integrated supply of [laboratory reagents](https://global.kpbioie.com/product-category/laboratory-reagents/) and disposable lab consumables for daily experiments, analysis and testing.
 
 ## Main Product Range
