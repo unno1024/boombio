@@ -1,4 +1,4 @@
-# Standard Substance | Shanghai Boombio / KPBioIE
+# Standard Substance | Shanghai Kepon Biotech / KPBioIE
 [Certified reference materials and standard solutions](https://global.kpbioie.com/product-category/standard_substance/) for instrument calibration, pharmaceutical testing, environmental monitoring and laboratory quality control.
 
 ## Main Product Range
