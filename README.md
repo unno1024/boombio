@@ -1,4 +1,4 @@
-# Shanghai Boombio / KPBioIE – Global Cross-Border Supply
+# Shanghai Kepon Biotech / KPBioIE – Global Cross-Border Supply
 **Official Website**: https://global.kpbioie.com/
 
 We are a one-stop cross-border supplier dedicated to life sciences, biopharmaceutical research, and new energy lithium battery industries. Our goal is to connect high-quality global resources and deliver reliable, compliant products and services to research institutions, biopharma enterprises, and new energy manufacturers worldwide.
