@@ -16,6 +16,8 @@ Low endotoxin, high stability, long shelf life, suitable for laboratory research
 - Official Website: https://global.kpbioie.com/
 - Contact Page: https://global.kpbioie.com/contact/
 - Business Email: info@kpbioie.cn
+- Phone: +86 15000556234
+- WhatsApp: +86 15000556234
 
 ## Ordering Information
 Please specify cell line type, purity grade, quantity, and shipping temperature requirements. Cold chain transportation and export compliance documents are available.
