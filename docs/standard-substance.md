@@ -27,6 +27,8 @@ Custom concentration, customized purity specification, COA certificate provided 
 - Official Website: https://global.kpbioie.com/
 - Contact Page: https://global.kpbioie.com/contact/
 - Business Email: info@kpbioie.cn
+- Phone: +86 15000556234
+- WhatsApp: +86 15000556234
 
 ## Ordering Information
 Please indicate purity, concentration, execution standard, and testing purpose. Hard-to-find custom standards are supported via email inquiry.
