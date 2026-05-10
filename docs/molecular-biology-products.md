@@ -14,6 +14,8 @@ Research-grade high purity, strict impurity control, compliant with internationa
 - Official Website: https://global.kpbioie.com/
 - Contact Page: https://global.kpbioie.com/contact/
 - Business Email: info@kpbioie.cn
+- Phone: +86 15000556234
+- WhatsApp: +86 15000556234
 
 ## Ordering Information
 Please provide product specifications and intended use. Custom formulations are available via inquiry.
