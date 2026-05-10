@@ -51,6 +51,8 @@ For product parameters, bulk quotation, customized services and cross-border pro
 - Official Website: https://global.kpbioie.com/
 - Contact Page: https://global.kpbioie.com/contact/
 - Business Email: info@kpbioie.cn
+- Phone: +86 15000556234
+- WhatsApp: +86 15000556234
 
 ---
 Tags: Biochemical Reagents, Standard Substances, Laboratory Consumables, Cell Culture Products, Lithium Battery Materials, One-Stop Lab Supply, Cross-Border Procurement, Life Science Research, Industrial Raw Materials
