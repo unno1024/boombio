@@ -21,6 +21,8 @@ Special dangerous goods declaration, transportation identification report, commo
 - Official Website: https://global.kpbioie.com/
 - Contact Page: https://global.kpbioie.com/contact/
 - Business Email: info@kpbioie.cn
+- Phone: +86 15000556234
+- WhatsApp: +86 15000556234
 
 ## Ordering Information
 Please provide material grade, purity, particle size, quantity, and destination port. Special shipping schemes for battery materials are available.
