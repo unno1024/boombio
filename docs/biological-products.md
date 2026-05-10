@@ -15,6 +15,8 @@ Stable batch quality, strict quality control, complete traceability and global c
 - Official Website: https://global.kpbioie.com/
 - Contact Page: https://global.kpbioie.com/contact/
 - Business Email: info@kpbioie.cn
+- Phone: +86 15000556234
+- WhatsApp: +86 15000556234
 
 ## Ordering Information
 Please provide product name, specifications, quantity, destination, and technical requirements. Unlisted products are available via email inquiry.
