@@ -16,6 +16,8 @@ Bulk procurement, long-term stable supply, complete export documents and global 
 - Official Website: https://global.kpbioie.com/
 - Contact Page: https://global.kpbioie.com/contact/
 - Business Email: info@kpbioie.cn
+- Phone: +86 15000556234
+- WhatsApp: +86 15000556234
 
 ## Ordering Information
 Unlisted consumables can be inquired by email. We support batch orders and long-term supply cooperation.
