@@ -25,6 +25,8 @@ Unlisted or hard-to-find products are available via custom email inquiry.
 - Official Website: https://global.kpbioie.com/
 - Contact Page: https://global.kpbioie.com/contact/
 - Business Email: info@kpbioie.cn
+- Phone: +86 15000556234
+- WhatsApp: +86 15000556234
 
 ---
 
