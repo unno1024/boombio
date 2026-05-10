@@ -15,6 +15,8 @@ University laboratories, Academic labs, biopharma enterprises, biotech companies
 - Official Website: https://global.kpbioie.com/
 - Contact Page: https://global.kpbioie.com/contact/
 - Business Email: info@kpbioie.cn
+- Phone: +86 15000556234
+- WhatsApp: +86 15000556234
 
 
 ## Ordering Information
